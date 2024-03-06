@@ -6,7 +6,7 @@
 
 💼 I am enthusiastic about collaborating on projects related to web development, artificial intelligence, and machine learning.
 
-📫 Feel free to reach out to me via email at example@example.com.
+📫 Feel free to reach out to me via email at adityabhutkar078@gmail.com.
 
 😄 Pronouns: He/Him
 
